@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JBar115
-- 🌱 I’m currently learning computer science 
+- 🌱 I’m currently learning computer science at uncc 
 - 📫 How to reach me Jbarrera617@outlook.com
 - 😄 Pronouns: he/him
 
